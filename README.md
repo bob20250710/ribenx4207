@@ -16,4 +16,4 @@
 
 最后，站长们还需要注重内容的合规性和版权问题。通过合作与授权，确保平台上的每个视频都符合法律规定，避免平台因侵权而遭受法律风险。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bob20250710/ribenx4207 ）</span>
